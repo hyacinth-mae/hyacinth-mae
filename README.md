@@ -1,0 +1,12 @@
+- 👋 Hi, I’m your baby, your langga and moshi. _laling mwhehe
+- 👀 I’m always interested in you mylove. 
+- 🌱 I will always admire your kindess and patience on me
+- 🥀 Thank you for accepting my kamalditahan hahahaha
+- 💞️ I’m looking a baby uwu, Can you be my handsome baby? always? and forever? 
+- 📫 iloveyoualways mwa, 
+- ❤ Pogi mo always mahal
+- 🤗 Can't wait na magkita us mwhehe
+- 😩 Basta mahal na mahal kita langga
+- 👄 Baho kag tipot 
+- 😤 Wag na wag ka entertain ng ibang girls baka masakal kita
+- 😉 Always take care and drink your medicine
